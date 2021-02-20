@@ -6,3 +6,5 @@
 - 🤔 I’m looking for help with someone who has a better command on JavaScript
 - 💬 Ask me about bootstrap, CSS
 - 📫 How to reach me: ping me on afrosehussainmd@gmail.com
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: Roses are red, Violets are Blue. I have never met someone, as beautiful as you <3
